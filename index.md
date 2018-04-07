@@ -1,6 +1,6 @@
 ## Scott Du
 
-Scott is still working on the personal website.
+Scott is still working on this personal website.
 
 If you wish to contact Scott Du, please use the following methods.
 
